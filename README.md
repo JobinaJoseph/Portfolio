@@ -15,7 +15,7 @@
 - Utilized data analysis and communication skills to facilitate the transfer of patients to tertiary centers for advanced care in 20% of cases, ensuring timely and appropriate treatment through effective coordination with corresponding cancer teams.
 - Conducted data analysis to support the treatment of approximately 80% of cancer patients across specialized areas such as Head and Neck, Hematology, Oncology, Lung, and Upper GI.
   
-** Deputy Bank Manager @ ICICI Bank Pvt Ltd, India (_October 2020 - December 2021_)**
+**Deputy Bank Manager @ ICICI Bank Pvt Ltd, India (_October 2020 - December 2021_)**
 - Leveraged data analysis techniques to maintain and deepen relationships with high-net-worth clients, ensuring satisfaction and loyalty through personalized service delivery based on data insights.
 - Analyzed end-to-end primary banking processes, including customer approach, account opening procedures, and portfolio management, identifying inefficiencies and recommending improvements based on data analysis.
 - Utilized data analysis to identify opportunities for revenue enhancement, leading to increased wallet share among customers and contributing to revenue growth by 25%.
